@@ -1,1 +1,0 @@
-# taragyan-privacy
